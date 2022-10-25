@@ -1,2 +1,2 @@
 you are right
-yes
+yes is ok
